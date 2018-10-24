@@ -1,3 +1,3 @@
-## Contributors :smile😁
+## Contributors :😁
 
 1.ROHITH
