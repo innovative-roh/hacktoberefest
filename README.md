@@ -1,2 +1,2 @@
 # hacktoberefest
-contribute.msd
+contribute.Msd
