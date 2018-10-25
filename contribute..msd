@@ -1,3 +1,3 @@
 ## Contributors :😁
 
-1.ROHITH
+1.rohith
